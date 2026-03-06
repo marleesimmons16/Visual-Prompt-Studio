@@ -1,1 +1,2 @@
-
+Prompt A: Create an artwork using oil pastels that emphasizes the elements of color line and texture what these principles of contrast use a set of oil pastels blennding stumps, and a smooth paper surface. The composition should feature a still life of a vase of flowers on a table.
+Prompt B: Create an artwork using silkscreen printing that emphasizes the elements of color, line, and texture with the principles of contrast. Use a silkscreen-framed screen printing ink, a squeegee, and transparency film. The composition should feature a still life of a vase of flowers on a table.
